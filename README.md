@@ -1,2 +1,2 @@
 # Gallipoli
-The new Gallipoli Holiday Estate
+The new Gallipoli Business Card
